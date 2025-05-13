@@ -1,4 +1,4 @@
-# Thinkific Coupon Codes, Discount Deals & Offer
+# Thinkific Coupon Codes, Discount Deals & Offer 2025
 
 Thinkific is a tool that helps you create and sell online courses. It’s made for teachers, coaches, business owners, and anyone who wants to share their knowledge and make money from it. You don’t need to know how to code or be a tech expert—Thinkific handles the hard stuff so you can focus on your content.
 
